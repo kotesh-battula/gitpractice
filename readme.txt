@@ -1,1 +1,1 @@
-This is kotesh battula studying in Aditya College in Information Technology at its best
+This is kotesh battula studying in Aditya College in Information 
