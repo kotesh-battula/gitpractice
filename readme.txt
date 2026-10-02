@@ -1,1 +1,1 @@
-This is kotesh battula studying in Aditya College in Information 
+This is kotesh battula studying in Aditya College in Information and  Later joined in codegnan institution in HYD to upskill.
